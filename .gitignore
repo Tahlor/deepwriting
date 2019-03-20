@@ -1,5 +1,6 @@
 #
 IAM_online/
+#data/
 
 # Byte-compiled / optimized / DLL files
 __pycache__/
@@ -109,4 +110,4 @@ ENV/
 # Training
 runs/
 runs_evaluation/
-data/
+
