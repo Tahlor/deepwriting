@@ -2,6 +2,8 @@ import tensorflow as tf
 import numpy as np
 
 import sys
+sys.path.append(r"./source")
+
 import os
 import argparse
 import json
@@ -12,6 +14,7 @@ from tf_models import VRNNGMM
 from tf_models_hw import HandwritingVRNNGmmModel, HandwritingVRNNModel
 from utils_visualization import plot_latent_variables, plot_latent_categorical_variables, plot_matrix_and_get_image, plot_and_get_image
 import visualize_hw as visualize
+
 
 # Sampling options
 run_gmm_eval = False  # Visualize GMM latent space by using random samples and T-SNE.

@@ -1,0 +1,6 @@
+tensorflow
+matplotlib
+opencv
+pillow
+scikit-learn
+svgwrite
