@@ -20,7 +20,7 @@ import visualize_hw as visualize
 run_gmm_eval = False  # Visualize GMM latent space by using random samples and T-SNE.
 run_original_sample = True  # Save an image of reference samples (see reference_sample_ids).
 run_reconstruction = False  # Reconstruct reference samples and save reconstruction results.
-run_biased_sampling = True  # Use a real reference sample to infer style (see reference_sample_ids) and synthesize the given text (see conditional_texts).
+run_biased_sampling = False  # Use a real reference sample to infer style (see reference_sample_ids) and synthesize the given text (see conditional_texts).
 run_unbiased_sampling = True  # Use a random style to synthesize the given text (see conditional_texts).
 run_colored_png_output = False  # Save colored images (see line 47). For now we use end-of-character probabilities to assign new colors.
 
@@ -136,7 +136,9 @@ def do_evaluation(config, qualitative_analysis=True, quantitative_analysis=True,
         model.build_graph()
 
     # Create a session object and initialize parameters.
+    #sess = tf.Session(config=tf.ConfigProto(log_device_placement=True))
     sess = tf.Session()
+
     # Restore computation graph.
     try:
         saver = tf.train.Saver()
