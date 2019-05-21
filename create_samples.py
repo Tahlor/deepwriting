@@ -15,7 +15,6 @@ from tf_models_hw import HandwritingVRNNGmmModel, HandwritingVRNNModel
 from utils_visualization import plot_latent_variables, plot_latent_categorical_variables, plot_matrix_and_get_image, plot_and_get_image
 import visualize_hw as visualize
 
-
 # Sampling options
 run_gmm_eval = False  # Visualize GMM latent space by using random samples and T-SNE.
 run_original_sample = True  # Save an image of reference samples (see reference_sample_ids).
@@ -32,7 +31,7 @@ seq_len = 800  # Maximum number of steps.
 gmm_num_samples = 500  # For run_gmm_eval only.
 
 # Text to be written by the model.
-conditional_texts = ["I am a synthetic sample", "I can write this line in so many styles."]
+conditional_texts = ["I am a synthetic sample", "I can write this line in any  style."]*10
 # Indices of reference style samples from validation split.
 reference_sample_ids = [107, 226, 696]
 # Concatenate reference sample with synthetic sample to make a direct comparison.
@@ -43,7 +42,6 @@ plot_eoc = False  # Plot end-of-character probabilities.
 plot_latent_vars = False  # Plot a matrix of approximate posterior and prior mu values.
 save_plots = True  # Save plots as image.
 show_plots = False  # Show plots in a window.
-
 
 class ImageGenerator:
 
@@ -177,6 +175,7 @@ class ImageGenerator:
     def random_sample(self):
         # Conditional handwriting synthesis.
         for text_id, text in enumerate(conditional_texts):
+            print(text)
             self.keyword_args['use_sample_mean'] = True # disable beautification
 
             print(self.keyword_args)
@@ -198,7 +197,7 @@ if __name__ == '__main__':
     parser.add_argument('-QN', '--quantitative', dest='quantitative', action="store_true", help='Run quantitative analysis')
     parser.add_argument('-QL', '--qualitative', dest='qualitative', action="store_true", help='Run qualitative analysis')
     parser.add_argument('-V', '--verbose', dest='verbose', type=int, default=1, help='Verbosity')
-
+    args=parser.parse_args()
     config_dict = json.load(open(os.path.abspath(os.path.join(args.model_save_dir, args.model_id, 'config.json')), 'r'))
     config_dict['model_dir'] = os.path.join(args.model_save_dir, args.model_id)  # in case the folder is renamed.
     config_dict['checkpoint_id'] = args.checkpoint_id
