@@ -31,7 +31,7 @@ seq_len = 800  # Maximum number of steps.
 gmm_num_samples = 500  # For run_gmm_eval only.
 
 # Text to be written by the model.
-conditional_texts = ["I am a synthetic sample", "I can write this line in any  style."]*10
+conditional_texts = ["I am a synthetic sample", "I can write this line in any style."]*10 # doesn't work with double spaces!!!
 # Indices of reference style samples from validation split.
 reference_sample_ids = [107, 226, 696]
 # Concatenate reference sample with synthetic sample to make a direct comparison.
@@ -175,10 +175,9 @@ class ImageGenerator:
     def random_sample(self):
         # Conditional handwriting synthesis.
         for text_id, text in enumerate(conditional_texts):
-            print(text)
             self.keyword_args['use_sample_mean'] = True # disable beautification
 
-            print(self.keyword_args)
+            print(self.keyword_args, seq_len, text)
             unbiased_sampling_results = self.model.sample_unbiased(session=self.sess, seq_len=seq_len, conditional_inputs=text, **self.keyword_args)
 
             save_name = 'synthetic_unbiased_(' + str(text_id) + ')'
@@ -186,7 +185,6 @@ class ImageGenerator:
                                                                      detrend_sample=False)
 
             self.plot_eval_details(unbiased_sampling_results[0], synthetic_sample, self.config['eval_dir'], save_name)
-
 
 if __name__ == '__main__':
     parser = argparse.ArgumentParser()
