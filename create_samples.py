@@ -1,6 +1,7 @@
 import tensorflow as tf
 import numpy as np
 
+import re
 import sys
 sys.path.append(r"./source")
 
@@ -27,11 +28,30 @@ run_colored_png_output = False  # Save colored images (see line 47). For now we 
 eoc_threshold = 0.05
 cursive_threshold = 0.005
 ref_len = None  # Use the whole sequence.
-seq_len = 800  # Maximum number of steps.
+seq_len = np.inf  # Maximum number of steps.
 gmm_num_samples = 500  # For run_gmm_eval only.
 
 # Text to be written by the model.
-conditional_texts = ["I am a synthetic sample", "I can write this line in any  style."]*10
+n_samples = 10
+# np.random.seed(0)
+sample_text_path = '../english_text/raw_text_10000.txt'
+invalid_chars = ['!', '"', '#', '$', '%', '&', '*', '+', ':', ';', '<', '=', '>', '?', '@', '[', '\\', ']', '^', '_', '`', '{', '|', '}', '~']
+
+print("Loading Text")
+with open(sample_text_path, 'r') as fp:
+    text_data = " ".join(fp.readlines())
+    for char in invalid_chars:
+        text_data = text_data.replace(char, "")
+    text_data = text_data.replace("  ", " ")
+    text_data = text_data.split()
+
+conditional_texts = []
+for i in range(n_samples):
+    start = np.random.randint(len(text_data)-20)
+    end = start + np.random.randint(3, 6)
+    sample = " ".join(text_data[start:end])
+    conditional_texts.append(sample)
+
 # Indices of reference style samples from validation split.
 reference_sample_ids = [107, 226, 696]
 # Concatenate reference sample with synthetic sample to make a direct comparison.
@@ -58,8 +78,18 @@ class ImageGenerator:
         self.sess, self.model, self.validation_dataset = self.load_model(self.config)
 
     @staticmethod
-    def plot_eval_details(data_dict, sample, save_dir, save_name):
+    def plot_eval_details(data_dict, sample, save_dir, save_name, text=None):
         visualize.draw_stroke_svg(sample, factor=0.001, svg_filename=os.path.join(save_dir, save_name + '.svg'))
+
+        gt_path = os.path.join(os.path.dirname(os.path.normpath(save_dir)), 'synthesized_ground_truth.json')
+        if not os.path.exists(gt_path):
+            gt = []
+        else:
+            with open(gt_path, 'r') as fp:
+                gt = json.load(fp)
+        gt.append({'image_path': os.path.normpath(os.path.join(save_dir, save_name)), "gt": text, "online": True})
+        with open(gt_path, 'w') as fp:
+            json.dump(gt, fp, indent=2)
 
         plot_data = {}
         if run_colored_png_output:
@@ -173,6 +203,10 @@ class ImageGenerator:
         self.sess.close()
 
     def random_sample(self):
+        file_nums = [int(re.sub("\D", "", s)) for s in os.listdir(self.config['eval_dir'])]
+        n = max(file_nums)+1 if len(file_nums) > 0 else 0
+
+        print("Generating", n_samples, "Samples")
         # Conditional handwriting synthesis.
         for text_id, text in enumerate(conditional_texts):
             print(text)
@@ -181,11 +215,11 @@ class ImageGenerator:
             print(self.keyword_args)
             unbiased_sampling_results = self.model.sample_unbiased(session=self.sess, seq_len=seq_len, conditional_inputs=text, **self.keyword_args)
 
-            save_name = 'synthetic_unbiased_(' + str(text_id) + ')'
+            save_name = 'synthetic_unbiased_(' + str(text_id+n) + ')'
             synthetic_sample = self.validation_dataset.undo_normalization(unbiased_sampling_results[0]['output_sample'][0],
                                                                      detrend_sample=False)
 
-            self.plot_eval_details(unbiased_sampling_results[0], synthetic_sample, self.config['eval_dir'], save_name)
+            self.plot_eval_details(unbiased_sampling_results[0], synthetic_sample, self.config['eval_dir'], save_name, text)
 
 
 if __name__ == '__main__':

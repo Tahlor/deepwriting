@@ -81,7 +81,7 @@ setuptools=40.8.0=py36_0
 sip=4.19.8=py36hf484d3e_0
 six=1.12.0=py36_0
 sqlite=3.27.2=h7b6447c_0
-svgwrite=1.2.1=pypi_0
+#svgwrite=1.2.1=pypi_0
 tensorboard=1.12.2=py36he6710b0_0
 tensorflow=1.12.0=gpu_py36he74679b_0
 tensorflow-base=1.12.0=gpu_py36had579c0_0
