@@ -382,7 +382,6 @@ class HandwritingVRNNGmmModel(VRNNGMM, HandwritingVRNNModel):
         zero_char_label = np.zeros((1, 1, 70))
         bow_label = np.ones((1, 1, 1))
         non_bow_label = np.zeros((1, 1, 1))
-
         words = text.split(' ')
 
         prev_eoc_step = 0
