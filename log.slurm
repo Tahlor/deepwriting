@@ -6656,3 +6656,2589 @@ its war on terror,
 {'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
 sit together, surrounded
 {'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+preparation for war. Resolution. In
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in the standings with 60
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to distribute laptop computers to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+but not for td, i.e.,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+because they are known
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to spread Catholicism into
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+together with the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+these persons to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and Dale Evans'. Supply
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Joint Control Commission
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+branded debit and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of New Spain, and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+origin along the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+escorting the known arms
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for the sequel, as
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+signature susceptibility. Digital signatures can
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+patron of all spiritual retreats
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+letters SPQR over the lines.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+higher layer protocol being
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+he finished tied for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Mujahedin renamed themselves Peykar,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Scottsdale, Paradise Valley, and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Centronics interface on their computers.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+spermatophore. After mating,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+how widespread Drioli
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Eleventh Hour. Similarly, he guest
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that controlled the various
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+16, 1988. On
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+passenger cars, each able to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+fast following an assurance from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+example, in PHP,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+digital release were
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+men, including two doctors.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Oasis said in an
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Thupten Phuntsok of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+language, is an accomplishment
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+body to perfection.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+originally used by people
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Raj and incite
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Since 2002, he has written
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+through the International
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the return of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the aegirineaugite series the sodium
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+their actions. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to a temple to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+until 1769, that the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+varying numbers of brigades of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+me. I always was attracted
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+will stop the bacteria
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Distinguished Service Cross.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+annual convention held
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that hides the inner reality.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+with this accusation after
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as a propaganda tool
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Multivitamins were distributed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+hospitals and 50
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Trust's greatest achievements was raising
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+via the Numinbah Valley
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+subsequent gubernatorial election
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in County Cavan. In
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Parks became acquainted
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the industry
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+fallen to onethird of its
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the local population. Today, the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+According to Jeff Beck biographer
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to German control.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in 1993, Middlemass first appeared
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+his beautiful and infatuated wife,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+see a great deal
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+engines. In September 1972 Ford
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+In their first meeting at
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+1871 the camp was closed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of only 36,000
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+We Collide, The Red
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the bond electron pair
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Egypt. Also RWE
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+which incorporated psychedelic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the head of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+said Dillard. These poems
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the physical manifestations
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Edward. A large spacecraft suddenly
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+wanted to break into the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+different official LTK expansion
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+whose last name means
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for the treatment of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+This led to an explosion
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+been nominated for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of Edward VIII in favour
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the piece. Whitney
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and Fraser and emerged
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to drill directly
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+portrayal of Yoko,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+dictionary of Kikongo. In addition,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sources of radio noise.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Friday but he
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+ruled that Aylesbury Vale District
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to generally negative reception, due
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Henry Harland to design
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+told him about how
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the Silmaril, Erendil
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+kind of Imari
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+soup. Miyeok guk
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Rensburg family cemetery
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+while Faliero and two
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the UK. Sinitta's only studio
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to have the roman
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+stands in the way of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+GrecoTurkish War, that a new
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+minute sequential differences in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+it coincided with American Thanksgiving.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+between this game and its
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Kane. Welles told filmmaker Peter
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sailing eastwards back to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Monica, California, who
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+being in college. New
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Indian I Corps within
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+lamps as light sources.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Makahiki festival
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+were immediately put on duty
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+hub of the United States
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+On 25 January, the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+rate. In 2007, Laffer
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Conservation of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+banned from all
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+lecturer in 1918, Banikanta Kakati
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Zayd. In Spain, the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and fitted with
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+apparent when he flies
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+election was held during his
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Grammar School based on
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+became a Top
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+which won the 1993
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+It was released
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+became the generic name for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to the palace from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+standard. AFDX was designed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+her memoir, Here Lies the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+anchor Lee Jungmin. This show
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+itself from the websites, such
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+seal fur traders and hunters,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is only obtained after observing
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+with 1000 RBI for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in the context of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sold exclusively through
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+if it responds
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+After the change of political
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+mutually beneficial business
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of his father, from whom
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and was invited to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+end result of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+over a span of roughly
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+She packs her bags and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+suspicious of how the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was sufficiently impressed with
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the position of rhythm
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+AIDS in various
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+repeat screening on Thursdays. However,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Frank Craig Pandolfe.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+This massive abdominal
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+he was one
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the center of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Gormley said of the New
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for logic and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the French Critical
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+had risen to 17.5
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in Boston formed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to the Neisse River.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+example, if H
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in the Wyoming
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on 24 October 2012.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+use. National rates of cannabis
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Day in each
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Oil Gas industry.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and use decoy flares
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of Ealing in west London,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cooperate with the state
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+U.S. cities. The late 1940s
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Packages Postcards are sold exclusively
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+they didn't follow her
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+from developing nuclear weapons as
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Second Barbary
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+weight from the hydrodynamic size.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+between the opposing armies
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+pressure jets was mounted on
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Jersey was claimed by the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for the 2004 Dick Butkus
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+they are close in proximity
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+extinctions have progressively increased
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sumptuous lifestyles. Historians explain
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+apostolic succession had never been
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+wear tunics. Islam. The men
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on October7, the area of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a word following
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Valley State 8171.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for Zerg structures and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+pollution from the two
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+has a capacity of 50250
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+16, 2006, the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Machine. After the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+John Farnham collaborator Phil
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of them were killed.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+California, the daughter of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+two Lewis guns
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Polytechnic Preparatory high school in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on the snow. Behaviour.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of how these
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for 6 touchdowns against
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is his world. The two
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Show season 5
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was speaking. I
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+additional trick or tricks should
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+characters may be
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+appointed a number
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+has more than
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+benzene. ABS combines
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+firstyear students in Ontario universities
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+its commanding topographical
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+girls, with the two
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and Herz began
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Ormeau Parliament constituency
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+untreated sewage, and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+presidential elections of 1981, which
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a soil pH between
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+disappointment of his life when
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and curious pieces of early
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Primera Divisin, where
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+it a French protectorate. They
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Stead that he feared that
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+picturesque locales of Russia, followed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+This logo is used
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+carnea, and C. rufilabris. D.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Willis. These are
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+men entered the camp
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Pattan Town is situated
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+five other countries. Blow
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+today shows snus use reduces
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+selects against quick lethality, with
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Norddeutscher Lloyd lost their
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+turning again against
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+whether a specimen belongs
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+much higher percent of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+major reason for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+its two firm orders. In
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+importance. They settled the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+regardless of their
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+undertaken by a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Phu heavily influenced the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+role in art, synesthesia has
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the constitution doesn't say
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+several laws to allow
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+designs of the new coins,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+years in Bonn
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for real estate
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+gave them their own
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+featured on her
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+now been translated
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and that Benoit
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+have been medical,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the stories but
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Family Fund. The extended
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+232C, the design dragged
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Bank by 7000BCE, and rapid
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+standard doubletwelve set,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+with generally positive reviews.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+World and has also
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+firstcome, firstserved basis
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Palais du Trocadero, laid out
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Highway, which connects Bilbao and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as his King
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+card is brought to Julius
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+trends and to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+owned by Thomas
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+are occur sympatrically. More
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Additionally, seaQuest DSV featured a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+began appearing in the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+make the fall 2006 lineup.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+tales, such as the Cherokee
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in March, 1996.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+variations, the game
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+their uses with numbers
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+he tells Yoshino to tell
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+skills. It doesn't quite
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+again if the court
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+they operated within conditions
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Spain, Australia and Brazil.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+love with Edward Pettigrew,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+They had afternoon tea. They
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a violent crackdown.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+over the coming years.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+evidence that, once stopped and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Her father, Dr. Jerry Wayne
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+transferred to East
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and many of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+flights in 1959 and Capital
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+malt bill. Kilned pale
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+her return flight.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+an 8yard loss. Sproles
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+which a circular
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+rusty particles on the guides
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+support and combat
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and used a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the Hellenic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+build acceptance test is generally
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+grew to larger average body
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+II, and until 1975, it
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+later interview Tupac's
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as health and balance
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+2 theta observed in urethaneanesthetized
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Inn in Riverside, California, Hiram
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+speakers, Old English and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the Association and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+This would mean that
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+atlases to digital
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and David Marr, to name
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and, while it didn't
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+perpetrators of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+wearer feeling dry. But as
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+While Burnaby North is considered
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+transmission. A floormounted shifter
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Whitechapel Vigilance Committee
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Great Britain. Before becoming
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+caste from which the Buddha
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the ground. It
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the island. Prefecture. As
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+lightness and compressibility made
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+related to Iran's nuclear
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+thought that he had been
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+not intended nor
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+THSR were subsequently approved
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Gramsci has said that intellectuals
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+expert turning movements, causing
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+flowering fern myth has roots
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the building for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Acting Assistant Commissary
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+permission from Williams' mother
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+read from right to left,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+eras, which were published in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+forcible spore discharge have
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+with the phrase were soon
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to those awarded
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that all the Moldovan
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+popular surf spots on
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+at 1030 at
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+respectively. In addition, Bertaggia won
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+face with the Inquisition.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+interview in the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+heartily if I amuse
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+days, and San Francisco is
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+careers series In
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and the dates you
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+fitted with CCTV surveillance
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+contrasted sharply with East Indians,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Mikhoel's directing style. Antifascist activities
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the only transmission available, although
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Management encompasses the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+intensifies, its heavier
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+did not play the solo
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Generation X to stop
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+host the 1904
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+official banner signing for Newtown,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the whereabouts of Priscilla,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+reviewer for Entertainment Weekly, gave
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+significand. We then
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+73,000 people died and a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+room, fought with
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to over 1billion.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is in shadow, with sunlight
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the environment against
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+interdisciplinary perspective andor with
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is to use
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+second floors of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+feed, but is after
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the pass and fighting
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+they wear a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+September22, the eye
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+French Football Federation
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on large quantities
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+behavioral health or
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+which fought the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to the typical
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Adams's lifetime. Adams
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+enough to confuse users
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the 2011 Rugby World Cup.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to rally his men
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+loyalties quickly became affixed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+city is HoumtSouk, with a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the big end
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+forgiving attitude, adaptability, and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a status update by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+mere distractions from boredom which,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+construction firm. Berry,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+pioneer in webbased
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+making contact with an agent.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+heavy loads and where
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by a Scot, James's arrival
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and can be used for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+state championships in girls'
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in the Caha range. Demographics.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+been trained by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+popularised by Mary Daly in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+this setting, if
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in Laos and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+such as keyboards
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+described himself as a conservative
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cooks prefer a legged
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+World No. 1
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+from standard German. This
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and later for the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+so in response
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+extending the use of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in the writings of John
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+South Africa. Other buildings. South
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in third. Pagenaud
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+former U.S. Secretary
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a popular Quebec
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Americans. Uruguay immediately dispatched
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+long history, mutual influence, and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+different collision resolution
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+others, though, claim that religiosity
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+men had provoked the tiger,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+second worst in Football League
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+earned BMI's Robert J. Burton
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+green fields at
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+maturing fruit trees
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Sean Franklin and Kheli
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+small navy of six
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+CPUs was added in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+kamal. The latter is
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+settles issues of divorce, minor
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Finnish rapelectro group
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+lacks a clear
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+traveled briefly to Vienna,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+160hp instead of the original
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the San Diego Padres. Baseball
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+years from 1846, Isaac
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+1884. The Australian
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for images that are generated
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+analogical relation are themselves superfluous.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and Maurice Bayard,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+such as Chinese,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+word speed speed besides good
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that all through the New
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was once used by a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+came into use after it
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+they do in Sweden,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in 1944, and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+with three senses,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of his 1991 work, for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cases. Current composition of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+condemned the violence. Later
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of production output due to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Okonkwo who lives
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+finding it full of character
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+exists. To obtain
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+him what he would later
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+arrangement. Although reduced
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+returned to the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+several instances where they were
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+there is little that
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+mass grave however,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a school record 2,934 yards,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of political or economic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Among these, the Los
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as Queen Min, was the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that it had
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+any funds towards the compensation.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the storyline concerning
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the early years. Ska.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cultural influences. Some
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+many different levels of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+U.S. troops in Iraq, saying,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Tanach. The Tanach
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+economical addition to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+attend events put on. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+several soldout records of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+after, he followed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+point is a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+San Miguel Superdry, San Mig
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+reaper's song are
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+exemplary of ecocriticism as an
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Amherst on July 13 I
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of William Prine and Verna
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+will rule over the whole
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Switching Centre using the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that most would consider
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+WLSFM from 1981 through 1986
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a feminization of magic along
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in traditional French verse
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+many users. Microsoft turned
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+questions about the types of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+unsuccessful in her suit
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+takes its value
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Lingaraj Temple, Rajarani Temple, Dhauligiri,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+III was announced
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of time the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in a film
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+In 2010, the school
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+his solos. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+loosely based on
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was known as the war
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+success aroused the jealousy of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+trees from the forest
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Committee. After the meeting,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+U.S. style packaging were
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+leads should work together to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+entitled Motorway Cops, because
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+his best to leave his
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+parabolic transformation Choosing real
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+one of Wang Chung's most
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+it spawned performers including
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+child psychology, and as much
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on his Twitter that he
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+already in place in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to the north
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+The sunlight received by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+performed in the case
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+but what he feels
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+In the wake
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+consideration. In September 2009,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+particles as massless. Goldstone's theorem,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+specify formats are sometimes
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by Lisle Corporation
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+were considered Barrett and Jones
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+with a zombie virus developed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+acquired several companies like Fairchild
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+he perform for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+coronation ceremony, 16
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+throughout the title
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Warrior, who was immensely popular
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+The first volume,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+The British however
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Wells and features
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+case officer in 1950 spending
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+rancher's wounded men Valdez is
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Lost Legend which sampled
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Best Rock Instrumental Performance.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+French painter PierreAuguste Renoir.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Mk IIIA1 and the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+again after paying
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+including swimming, running along
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in a convention
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+league scoring champion Kevin Durant.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the use of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to 20 gates and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the rights for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Sirius Star MV Sirius
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+device running Android OS, Microsoft
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+left it to join the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Richard Gere for the romantic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in Jim being knocked overboard
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+The family name is also
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Monday to Friday,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+He entrusted this
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+scheme. In that
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+it has requests coming in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+although it was
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and the rest of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+what is asked
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sheets are taken
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+which ranks country performance according
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+resulting in years of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+their 12th edition currently. Wanvari
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+district from N. to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Interior Minister Guillermo Rawson then,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+this assertion was till lately
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as bakisimba and makes a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+would be his
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+southwestern Maine and New
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+throaty and soulful vocals. It
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+instead, with White to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to maintain several alliances, including
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Metavante Corporation into
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+be no palpable
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+parts of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for the tonic in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+editor of Sassy
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of their respective home nation
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+glazing powder with a high
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Community Forum. Transport
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and partdemon, but were
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Chinese, the nuclear policy
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was placed back on the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+original discoveries, in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the analysis of the IMT
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+honorary in nature. List of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+doubled or tripled
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a small tarmac apron
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+wide variety of messaging
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+only an end of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+production in 1838
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+together with many
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+also determined the limits of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+then safely cleaning debris from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+relative to the Bounty
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Naruto. Sasuke is a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by removing the choke,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Protection Agency which has
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+notably scoring the series clinching
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Sagyrbayuly, a famous composer
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+first WSC game, a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+both plays they
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+newly created London County
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by Jafferkhanpet, Guindy, and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+safe. The question posed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in September 2004, and reduced
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that this system does not
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+title of a Halo
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and society in general. In
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+things through pink
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+series. Named after the AustroGerman
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+forward units. At 445pm,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+than 8,200 students. In early
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a negotiable instrument
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the debta factor
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a maneuver. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+has occurred. Because
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Breeders of America.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in Iraq. Later, as
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sex with the rape from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to transport squadrons, at which
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+family renouncing them
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and is being
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+numerous courses in the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+it possessed all the nominal
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+reported that Liz
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Chairman Mao Zedong succeeded
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in 1789. The vessel, it
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+name. Drivers Marcello
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+amount of buried hydrophobic surface
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+East Asia and Europe, eat
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+would progress. The Battle
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the BeijingTong County expressway.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of major life
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+have trouble mapping
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+ahead of schedule. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+outing from a journalistic perspective,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by the Gospel of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+just to the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+gearbox, and a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was condemned by Suzanne Mubarak,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+during sexual activity when an
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+goods and be selfsufficient.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the father of Bhima
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in his film Naseem,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Rufus King was an
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+ordinance, Ontario prohibited
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+two horizontal wells
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+take up a great deal
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Arkansas Supreme
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Sedgwick family. As
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the same name published in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+an undershot water
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of compilations and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Rketamine or racemic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+late 2010, he released the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Government judged that
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+around U.S. Army
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the former Mayor of Los
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+problem were limited. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+text by the Jain
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a new international
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+with each wing
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+help the Foundation
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Unbekannte Krieg was developed within
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+new more aerodynamic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Winner Takes All Match and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+through the oral
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the house. She follows
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of Frankfurt in 1849. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the raw materials cadmium
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+dogs. However this
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+furtherance of European culture.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and help reduce window glare.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Herkimer County are only
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+feed, pollution of water,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of only one storey
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+NCAA basketball player at
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+one Kalpa. Each Manvantara is
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+are still employed and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+his faith in the idea
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the war ground on,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+convicted of that charge. In
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and Pooja Gaur in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the art and Gilbert and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+an environmentalist basis,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the 'Alfredston' of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+often cited as one of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+constructed between 1843 and 1846
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cavaquinho was introduced
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+enjoyed success as
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as the February Revolution.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+several secondlevel units, originally prefectures
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a mistress of King
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+concept of loyalty too far.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Federation. Along with fellow ECW
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+ITUT multimedia telephony systems.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Association's Committee on Economic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and developed close ties
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the editor who inserted the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is the only country
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Heavey. According to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on stage and in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Emirates, would not
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+uti perhibentur . The earliest
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+please. To help them,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by Tomoaki Hirono. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+new cabin interior and all
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and on an
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+trained and organized
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+per acre. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was later used by HP
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+released as singles.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+exchange for Kovalchuk and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and order to the extent
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+were characterized by a clear
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+quantity for a facility of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+overemphasising the more
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+were mounted over the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+started the reclamation for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in a military expedition to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+move forward. After several days
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Duck Vol. 3 1,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+connotation of 'politically minded' and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+face upwards. Both colonial
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+I, first factories were
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+design implemented the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to fertilize their fields. Outer
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+have embroidered the flag.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a tribute to Edith
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+during the day. The work
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Our Gang film
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by a woman who was
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Dignadice and Samboy Lim.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+invented at the SEAS
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+after merging the individual lists
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Earth, he disrupts
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+be advantages because the cluster
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+from nonSindhi ethnic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Celtic Congress is a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+separation of microorganism
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+specialized classifier dictionaries have been
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+tried to intermingle himself
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+using subliminal messages
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Holy Land comments
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Apnea of prematurity is
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Amborella are true
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+script. It is
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and administration 19972000.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Jones Secondary School, now Cecil
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+hitting bin Laden with a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and Student Competition categories at
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+would have approximately
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and Tans were soon introduced
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+with his own
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+stock, or cravat,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the new province East Flanders.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a Category III landing system,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+limits to the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+between Corozal Town,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+access to Port Canaveral, a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in parts between 19131935 with
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Act of Union
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Turner sued but
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+In late September, a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Ifni were ceded
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Her first significant action
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+20 of the population,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+incline by temperament to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+borough located in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+meditation. Ananda Maitreya Thero lived
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+French rule the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Igo family and all
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+back to the United States
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Some songs that the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+RDF Semantic Graph
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to keep the mural
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+impossible for such a body
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of electroencephalogram and Gaia. Supporters
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+expressed a desire to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+COLLEGES NATIONAL LEVEL
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+raki have emerged, each with
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+do not expose you to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+income inequality in the town.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Luis Sandoval. However, Don Luis
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+. All three of these
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+many official depictions
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+lead to hilarity
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a substantial amount of money
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+power with accountability to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+dust may cause
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+but just over 6.1
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the compound. St John's
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+lack of sufficient
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Grove citing in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Paluskar, Faiyaz Khan, Gangubai Hangal,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+own seminaries, three
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+indicate their relative power Each
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+at some finite
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to the kingdoms that became
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the state of Gujarat. This
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as a diving
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+dispatch martyrdom videos after operations
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+been made with integral
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+likelihood of being exposed to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+associated with another
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+South West England. In 1999
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that Martin tells
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+He is also
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+number of priests suffered.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+hang on every
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+14.3 square miles with a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by train after
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the parish by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+members, so the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of grievances, and the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+eulogies that appeared in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+or closing montage sequence. Often
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the Senate from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+entered the student
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+person exists and actualizes
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to not assist them, prompting
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on Thiele's work, because Thiele
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by Scott McNeil.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+battles by leaders may be
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+1963. The Nikonos range
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and several new features
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+features of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+renovations in time for its
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sends a query without
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+from the original, where all
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+worker in Simon Wells'
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+drowns, taking days to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and socketbased protocols. Additionally,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+wing assets adding
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+leading microeconomist. He
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+network diagram. ISO
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+6.8 tilt, the cars
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+number of burial pits from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that although most
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Leong Tong as the dominant
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+her debut turbofolk album Ogledalce,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+palace, the mausoleum
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the 1st Armoured Division at
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+applications, and affirmed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and to RCF
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the simple possession of cannabis,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to form the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Singles Chart, in the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+most other resources the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+largest threats to children is
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+likely not occur. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+2013, originally Railworks. In
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+died of syphilis, but
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+ways parted. Married life.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as the dominant religion
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Rimmer's jacket becomes quilted
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+about 75 of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a Stop Proceed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in the crisis that
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+presented a proposal with the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Vikings in County Wexford occurred
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+enthusiasm and a hunger
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is killed by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+hundreds of divisions and subsets
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+1983 book The Visual
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the African American clergy. He
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+International Film Festival,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Atlanta Campaign,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+rapid transit lines which by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+an ongoing cycle of violence
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the work of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to allow traffic access to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is no point in going
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of time until such
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+focuses on family relationships from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+'Rider in the Rain.'
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+May 2009, it
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+line of defence of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Although the Kankakee River
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Harland Company Harland offers
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+The heat capacity
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+enforcement, versus the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of this with a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+more welcome as
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Griffith in his seminal
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cranks. The solution
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+much of its length
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+October 17, 1901.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a better design solution
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Contracting Parties agree
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Melander started 22
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the big route of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to two 'four year'
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the provisional government, under the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on January 3,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Darcy de Darcy
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+military flags. Additionally, the ratios
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to the women's mobile
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+group to an established
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and position, and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a samurai clan operating along
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+again a civilian, Massey
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+does not greatly affect the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a core component
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+institutes such as the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+area of one
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+layer which prevents the methane
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+reporters contacted the White House
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+book form. She
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Iimbongis' poetry, called imibongo,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+headquartered in Santa
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+June 2013. A tentative release
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+developed the first known codified
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+whether material or
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+paintings may have been inspired
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is an important procedure performed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was coined by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+users often have issues
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+viewership ratings. But after four
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+open cast coal
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a natural human
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+hours in the crane
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+unfulfilled in particular, a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+recently he was awarded
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was agreed between the developers
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+meter long and up to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+some late medieval horse skeletons
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Madagascar, Mauritius and Reunion.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of constitutional conservatism, consistently
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+have ranged from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+agroindustrial development of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Ball agreed to sell her
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as any other fiction. Does
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+well with fish, and are
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the support of the local
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+despite high list prices. In
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+particular, in the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+2.5 million years ago. It
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Noratlas Nord 2501
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Florida begin breeding
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to the increase from 14,588
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in the company of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Cimrman replied Dear
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+shows, Pap es un
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Corporation. Its origins are in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+spending one semester at the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+fuel shortages, war, pandemics,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+himself he had made
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+military families to the fore.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+found the compound
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+WWE canceled the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to 30 years in prison,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+chord. It entails moving from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+does suffer from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and perpetuated the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in the whaleboat to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+his occult studies. Outside the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+aim of the Juntas
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+concrete created through not
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+maximum inspiratory pressure
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+fault of the commodore
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+at this, ends the episode
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+whose resilience and total
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Philippines and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+old bathroom cupboard, the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Tanaka, director of A
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+countries with the FIA approved
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+increasingaided, in part, by the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+infant schools in Britain
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+been simmering tensions
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+defined by academic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+putative walk, the proposition
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+company was founded
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+should arise. They are a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+influence of hallucinogenic drugs, Dillard
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+1995. Available for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+lucky or unlucky.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+proposals. In 2010,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+entering new fields
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in the US,. Adult contemporary
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+groups as those
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a consequence the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+went as follows The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+surface until it broke
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+are far superior to the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+were also served by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+over the years. Sports. Lund
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+competitions have attracted thousands
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+FBFinal B FCFinal C FDFinal
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+nomination of Gupta because
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of subobjects of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Hanoi on a mercy mission
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+their Classic Malts
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+convict so easily.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Garden, flower growers from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Christian Sorority, Inc., Zeta
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+brother James were both members
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cultivated as ornamental plants
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+coinage, the cent and the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and research fields. Classic
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+overall supervision and guidance of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sometimes called the Undertaker Bird
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Yr Urdd', or
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the players who
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Thomas went off to law
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+result from damage to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Bell's lawyer requested that Bell's
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+also attempted to assassinate
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+attempts at solving
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by more than also contributed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+same reason that radio
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Elsinore, and Temecula.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of wealth and economic competitiveness.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+making of the album. His
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+going to get much
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and a blog.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Angel pilot LT Harding MacKnight
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+with Con Conrad, Gladys
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the Sacred Heart,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is still used by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the actual rate
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and somehow the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+her the 2011 Thomas
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+many of her released songs.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+The highest run up
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+listed by the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in Denmark and Sweden
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+media, the anonymous poster
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+by the District Court and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+ability, uninterested in politics
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+September 22, 1979,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+star officers were
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Social Situation of Mental
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+orchestra at The Eurovision Song
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+terms Holocaust denialism
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+GATA family of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+The same toy also introduced
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+clustering to create knowledge spillovers
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to gay rights
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+one X chromosome and one
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was therefore not exclusively
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+In 1917, US
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Pakistan blamed the fighting
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a PlayStation Eye Camera. One
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Army to the Smithsonian
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Taoiseach amon de Valera
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+turn affected those
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+temperatures are called the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+conjugates as follows Comparison
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+bombed in May
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+induction accelerator failed
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cow was enough
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+reported that it was
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+degree that touches on a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Claydon and Lauren Pope however,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+associated with the Liao Dynasty
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Weekly concurred The sheer heaviness
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+quo based on a theoretical
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Mary stumbles upon the former
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+service flights have
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+via wholebook subscriptions, perchapter
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of organic material, usually
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Not only does Bridgewater State
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+via a persistent sodium
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+new era name to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a couple of Hmong families
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+UK magazine Mixmag
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+he was, in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+commander of the Combat Cargo
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+after the war and put
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+more settled lives
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+are not just prepared
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+connected to a crime and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+features, such as
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+band members Kieran
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+third single was
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+portions of US101
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the 1920s and 1930s,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Dennen resigned from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+concert in Seoul. Ailee also,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+being 17 their total length
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+2004. It was on
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in The Heir
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Home directory A
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Cyclone with dates in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+As such he was
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+ZighAirport Highway. The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+group. Vedda also exhibits a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in her single
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+flowering plant in the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on zonebased rules,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+out of 151 journals
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and Hazrat Nizamuddin
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+losses, he sold it
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Musa riots, the San Remo
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+on sales of 162
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the overall dynamic of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Fort DeRussy, Hawaii.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+center of mass
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+first place the old
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+married newscaster Marianne Murciano in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Research. Lightspeed Research was founded
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+daily by policymakers, diplomats, fellow
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+key points that distinguishes melodrama
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+transportation. The forced
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Training College Pretoria,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+pastor of Open Door Community
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a snorkel that allows
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was built in 1439.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+dermatitis has been
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+called the place
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Gray received a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the cloth covering the body
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Benigno Aquino, Jr.. It was
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of Glooscap, the tribal
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cameras in time to a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to five pictures.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of Victoria, Texas, where they
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the reform era, children over
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+while in the army,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+main steps involved in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of Sciences. Offers
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+chapel. Liz leaves
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of nuclear weapons on a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+would later be nicknamed the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+are the hightech ExCentris and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+American navy in 1794
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+system, and pictures of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of bowling attack. In 20122013,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+which leads the boys into
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+were not included
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+three divided by squat columns.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+city in the province
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+marines to Iraq, I
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+360degree field of fire, although
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the album's remake
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+station even began
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+so someone had the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a threeyear contract with Red
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+ending his combat
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+road team, the 11th
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Seattle Transit system of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Partners. History. United Biscuits was
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+modern shopping precinct along
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+representing the polytope a tiling
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the 1990s,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Johnson II in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Chairman, Director, and Chief
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+wake of public apologies from
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+paperback form since many
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+specialty position. Positions include civil
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+hand. Hurling in particular is
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+told Saddam Go to hell
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+training base for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+men, was isolated and besieged
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the companies are
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+All were given the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+see him at
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in an opaque
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+also serves as
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+blown into dunes.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+would say, one can
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+outside of a turn,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+not be mortgaged or alienated,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+pragmatic, datadriven case study
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+tradition. Hayes returned
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Certificate of Qualification,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+rootstock. Upper and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+upheld the land reforms and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Digha, Shankarpur, Mandarmoni, Bakkhali etc.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Her debut album, The Fame,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Cyberjaya operate 24 hours
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+one applies for the passport
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the 1980s. He is
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Harlem drug
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+road continues to Church Road
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in an interview
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sound being presented as a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Riker is guilty
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+agreeing to pay
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was originally Luke Starkiller
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the , literally meaning the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+league appearances. Hitzfeld
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+specialty drinks, a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+evacuate and destroying several
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of pleasures surrounded by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the top most lyricist
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+taken a 147 first
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+an actor that always gives
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the park from eastwest to
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+that the organizational structure has
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+anthology of essays The
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for the Commonwealth and the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+his oratorio Gott
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Bell Labs. He worked
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+at sea and could cause
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+was also assembled in Bulgaria
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+been steadily improving throughout the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the Abrahamic covenant. The eighth
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+2010 in New
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+numerous shipwrecks and aircraft crash
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+begins the game by creating
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+early 1953 that
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a threat. However, the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the degree of freedom available
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of St. Monica,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+support of diversity
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+as being in the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of African culture acted
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+it had been discovered
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+idea for the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Kingdom of LombardyVenetia.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+1936. In any case,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of It All
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the 121km section
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+problem than people realize. A
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+who occupied the barge for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+moved to Invercargill
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+age 40 in Keio University
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+city. The days of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+clone troopers against
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in recognition that the Grosse
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+musical group called
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+styles diverge from more established
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+La Rsistance. Three days
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of living with a
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+interviews with family
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+conjugate, bedaggered matrix, or
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Air Festival to finish
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+heat energy at ambient
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+VJ of the 2005
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+not maintain the momentum
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+sales, while an
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+article is seen
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Propagandhi, and Strike Anywhere
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+movement on the bounce, with
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is an uncredited
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+for Latin America and the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+reefs and small
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the dimensions and proportions represented
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the majority is of the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the vast majority
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+in black and
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+first international urgent care conference
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+bells but on tuned steel
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+unpleasant penalties being imposed by
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Iran's claim that the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+suburbs, complemented by a commuter
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of ribframes and stringers,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+is 0.11m, and the individual
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Dupre an Actress
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Allah and the prophethood of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+finds out he
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+album that I really
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+rank badges are worn in
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a nominal capital of 100
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+The circumstances under
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a faulty front fork.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+warship. An analysis of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to return for
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+bright scarlet. Petioles are
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to chart on the Hot
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+PTC has used their criticisms
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Malta have been
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+Romney met the strikers,
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+environments, with large
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+from them by lacking
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+and larger society. He
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+The New Republic, RussianAmerican
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+an attack on
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+before him. Amid negotiations over
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+a number of other
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+cum regulating body
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+serials, among which Kuch Dil
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the major wrestling
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+his First Symphony, written
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+of the future which rules
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+pick by the Carolina Panthers
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+national flags, the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+elected this time. In July
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+stores in the
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+first time. They matched both
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the intro. The repetition of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+to Massachusetts if the state
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+lagoon, where guests can
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+financial disclosures and expedited
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+turbine wheels, where others had
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+after an initial confrontation between
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+the fans. Release
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+home ground of
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+may have fuelinefficient features.
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+their encounter with Sylar
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}
+provinces of Lanao del
+{'eoc_threshold': 0.05, 'cursive_threshold': 0.005, 'use_sample_mean': True}slurmstepd: error: *** JOB 31168635 ON m8g-2-5 CANCELLED AT 2019-06-23T08:23:17 DUE TO TIME LIMIT ***

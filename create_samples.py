@@ -212,12 +212,11 @@ class ImageGenerator:
         # Conditional handwriting synthesis.
         for text_id, text in enumerate(conditional_texts):
             print(text)
-            self.keyword_args['use_sample_mean'] = True # disable beautification
-
             print(self.keyword_args)
             unbiased_sampling_results = self.model.sample_unbiased(session=self.sess, seq_len=seq_len, conditional_inputs=text, **self.keyword_args)
 
-            save_name = 'synthetic_unbiased_(' + str(text_id+n) + ')'
+            # save_name = 'synthetic_unbiased_(' + str(text_id+n) + ')'
+            save_name = str(list(self.keyword_args.values())) + '_' + str(i)
             synthetic_sample = self.validation_dataset.undo_normalization(unbiased_sampling_results[0]['output_sample'][0],
                                                                      detrend_sample=False)
 
